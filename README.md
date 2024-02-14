@@ -20,7 +20,7 @@
 
 <br>
 
- [![@anushkawijegoonawardana97](https://img.icons8.com/fluency/48/000000/linkedin.png "@anushkawijegoonawardana97")](https://www.linkedin.com/in/anushkawijegoonawardana97/)[![@0711971313](https://img.icons8.com/fluency/48/000000/phone-disconnected.png "@625593501")](tel:625593501) [![@anushkaduwolka123@gmail.com](https://img.icons8.com/fluency/48/000000/apple-mail.png "@winstonmajano@gmail.com")](anushkaduwolka123@gmail.com)
+ [![@winstonmajano](https://img.icons8.com/fluency/48/000000/linkedin.png "@winstonmajano")](https://www.linkedin.com/in/winston-majano/)[![@625593501](https://img.icons8.com/fluency/48/000000/phone-disconnected.png "@625593501")](tel:625593501) [![@winstonmajano@gmail.com](https://img.icons8.com/fluency/48/000000/apple-mail.png "@winstonmajano@gmail.com")](winstonmajano@gmail.com)
 
 <br>
 
